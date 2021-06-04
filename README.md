@@ -1,3 +1,8 @@
+__Namikelwa
+bioinfo intern intrested in genomics
+
+
+
 ## Lmelias
 
 Instituition: icipe
